@@ -1,0 +1,5 @@
+--Twitch : lejixtv
+--Instagram : lejixtv
+--Speedrun.com : lejixtv
+--Discord: 'ℒ𝑒𝒿𝒾𝓍#1490
+--Justlejix
